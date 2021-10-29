@@ -1,1 +1,0 @@
-# https-www.gosuslugi.ru-covid-cert-verify-9860000013359628-lang-ru-ck-9337dec136694023cc553436905db
